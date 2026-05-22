@@ -1,1 +1,0 @@
-# Monte-Karlo-laboratorijas-darbs
